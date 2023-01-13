@@ -5,6 +5,6 @@
 - 💬 &nbsp; Ask me about anything tech related, I am happy to help;
 - 📫 &nbsp; Feel free to ping me, get in touch [here](https://eduardodelgrossi.github.io);
 
-## Future Professinal Hacker !
+## Future Professional Hacker !
 
 <br />
